@@ -1,1 +1,0 @@
-# newari4z1k
